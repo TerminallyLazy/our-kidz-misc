@@ -11,4 +11,5 @@
 ![placeholder](https://github.com/user-attachments/assets/9318acd7-363d-48ca-844e-e3ba20cf4d36)
 ![placeholder-logo](https://github.com/user-attachments/assets/8806fc7b-8fc4-4e9e-9832-417d660cbf53)
 ![placeholder-user](https://github.com/user-attachments/assets/53a31508-73ba-4299-b1bc-e9b1645a0330)
-![stressed-parents-hero](https://github.com/user-attachments/assets/06a94e25-fb3a-4fff-bef3-a613ca70ea87)
+![stressed-parents-hero](https://user-images.githubusercontent.com/06a94e25-fb3a-4fff-bef3-a613ca70ea87)
+https://user-images.githubusercontent.com/...
