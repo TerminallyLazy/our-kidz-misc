@@ -13,3 +13,4 @@
 ![placeholder-user](https://github.com/user-attachments/assets/53a31508-73ba-4299-b1bc-e9b1645a0330)
 ![stressed-parents-hero](https://user-images.githubusercontent.com/06a94e25-fb3a-4fff-bef3-a613ca70ea87)
 https://user-images.githubusercontent.com/...
+![stressed-parents-hero](https://github.com/user-attachments/assets/8fcfdab5-e1e0-400f-8611-f9b9a57a8d5f)
